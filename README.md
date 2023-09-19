@@ -5,7 +5,7 @@ Objetivo do Movimento:
 https://twitter.com/LibertarioUni/status/1703086250352075129?t=ufjxh7k13OuElQ-BtzjUJg&s=19
 
 [Mapa]
-Perfis Oficiais do Movimento Libertario Unificado 
+Perfis e Redes Oficiais do Movimento Libertario Unificado 
 
 WhatsApp:
 https://wa.me/5511978651908
@@ -13,6 +13,9 @@ Twitter:
 https://x.com/LibertarioUni?t=DplHr7mO1fD7myHP8IsFpA&s=09
 Canal no Telegram:
 https://t.me/LibertarianismoUnificado
+Discord;
+Reddit:
+https://reddit.com/r/MovimentoLibertario/s/BTDa27OSGF
 
 
 
@@ -20,7 +23,7 @@ https://t.me/LibertarianismoUnificado
 Regras:
 https://chat.whatsapp.com/JnUcfJGAV5DKy4VBSbsIa2
 
-Indice/Catalago Organizado de Tudo que temos de Grupos, Movimento, Paginas, Etc:
+[Breve]Indice/Catalago Organizado de Tudo que temos de Grupos, Movimento, Paginas, Etc: 
 https://wa.me/c/5511978651908
 
 Grupo Principal do Movimento no whats:
