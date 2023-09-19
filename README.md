@@ -1,9 +1,18 @@
 # Movimento Libertario Unificado 
-Perfil Oficial do Movimento Libertario Unificado no: WhatsApp:
+Isso é um rascunho da fase inicial de testes e desenvolvimento do movimento. Ainda não inauguramos tudo. Estamos buscando colaboradores para poder organizar de fato o movimento Libertario em si. Então não estranhe os Improvisos e as areas incompletas e vazias.
+
+
+
+[Mapa]
+Perfil Oficial do Movimento Libertario Unificado no: 
+WhatsApp:
 https://wa.me/5511978651908
 Twitter:
+https://x.com/LibertarioUni?t=DplHr7mO1fD7myHP8IsFpA&s=09
 Canal no Telegram:
 https://t.me/LibertarianismoUnificado
+
+
 
 Regras:
 https://chat.whatsapp.com/JnUcfJGAV5DKy4VBSbsIa2
