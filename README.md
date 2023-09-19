@@ -14,6 +14,9 @@ https://x.com/LibertarioUni?t=DplHr7mO1fD7myHP8IsFpA&s=09
 Canal no Telegram:
 https://t.me/LibertarianismoUnificado
 Discord;
+https://discord.gg/ns56YTv9
+Discord Canal Principal:
+https://discord.gg/ns56YTv9
 Reddit:
 https://reddit.com/r/MovimentoLibertario/s/BTDa27OSGF
 
