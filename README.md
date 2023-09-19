@@ -1,16 +1,19 @@
 # Movimento Libertario Unificado 
 Isso é um rascunho da fase inicial de testes e desenvolvimento do movimento. Ainda não inauguramos tudo. Estamos buscando colaboradores para poder organizar de fato o movimento Libertario em si. Então não estranhe os Improvisos e as areas incompletas e vazias.
 
-
+Objetivo do Movimento:
+https://twitter.com/LibertarioUni/status/1703086250352075129?t=ufjxh7k13OuElQ-BtzjUJg&s=19
 
 [Mapa]
-Perfil Oficial do Movimento Libertario Unificado no: 
+Perfis Oficiais do Movimento Libertario Unificado 
+
 WhatsApp:
 https://wa.me/5511978651908
 Twitter:
 https://x.com/LibertarioUni?t=DplHr7mO1fD7myHP8IsFpA&s=09
 Canal no Telegram:
 https://t.me/LibertarianismoUnificado
+
 
 
 
